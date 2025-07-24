@@ -87,6 +87,6 @@ Feel free to reach out and I’ll be happy to share:
 
 📧 Email: [Pranay0923@gmail.com]  
 🔗 LinkedIn: [(https://www.linkedin.com/in/mudigonda-pranay-kumar-4369461a0/)]
-💻 GitHub: [github.com/pranay0923]
+💻 GitHub: [(https://github.com/pranay0923)]
 
 ---
